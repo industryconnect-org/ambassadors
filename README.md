@@ -18,6 +18,10 @@ Industry Connect Ambassador Program aims to bring more awareness of tech career 
 
 Candidate (Initial) -> Ambassador -> Senior Ambassador -> Regional Head
 
+# Apply Now
+
+https://zfrmz.com/c68tkUFgeCcIUDil7M5Y
+
 # List of Recognized Ambassadors
 
 - Your name here
