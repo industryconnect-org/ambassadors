@@ -1,6 +1,6 @@
 # Ambassador Program
 
-Industry Connect Ambassador Program aims to help people to enable a future proof career in technology.
+Industry Connect Ambassador Program aims to bring more awareness of tech career incubation model of Industry Connect to everyday people around you.
 
 # Criteria
 
